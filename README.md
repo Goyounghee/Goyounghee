@@ -2,7 +2,8 @@ ENG
 - 👋 Hi there, I’m @Goyounghee
 - 👀 I’m interested in roblox
 - 🌱 I’m currently learning luau
-- 📫 How to reach me : Discord "길거리에 돌아다니는 고영희"
+- 📫 How to reach me : Discord "길거리에 돌아다니는 고영희" send DM plz
+- (Note : I'm Korean) 
 
 KOR
 - 👋 안녕하세요, 저는 @Goyounghee(고영희) 입니다!
